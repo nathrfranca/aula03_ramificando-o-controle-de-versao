@@ -1,3 +1,7 @@
+## CINCO PATINHOS
+## COMPOSITORES: Jeff Fatt / Greg Page / Anthony Field / Murray Cook
+## CANTOR: Xuxa
+
 Cinco patinhos
 Foram passear
 Além das montanhas
